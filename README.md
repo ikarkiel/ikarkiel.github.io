@@ -1,2 +1,2 @@
 # ikarkiel.github.io
-currently this poo is empty af
+dis shit is empty af
